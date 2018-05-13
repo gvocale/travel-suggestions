@@ -86,11 +86,11 @@ Hipster neighbourhood with nice shops.
 ### Koenji
 - [ ] vintage shopping
 
-##$ Shinjuku
+### Shinjuku
 - [ ] Walk in Golden Gai, street full of little 5~10 seats intimate bars
 - [ ] Go into one of the little bars in Golden Gai and try to conversate with bartender
 
-##$ Omotesando
+### Omotesando
 Designer hood http://www.onthegrid.city/tokyo/omotesando/
 
 ### Shimokitazawa
