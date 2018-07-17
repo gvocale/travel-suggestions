@@ -6,6 +6,11 @@
 Little town on a lake. Can spend an hour or two there. There is little foot path going from the town into the lake for a 100mt or so.
 
 
+## Isole Tremiti
+5 *****
+Little islands that can be reached from Termoli, Rodi, Torre Mileto, Peschici, Vieste. You could spend 1~3 days there. It is very calm at night, barely any car driving around. You could do a day boat tour, so that you can visit the varius little creek around the island. I like it because it is very peaceful. It is only 1 km large, so depending on the direction the wind is blowing, you can walk and go swim on the other side. There is only 1 busy beach, the rest are little creeks (calette) which needs a bit of a hike to get to.
+
+
 ## Torre Mileto
 1 *
 Little fisherman village. Not much to see here too. There is a quiet beach, not very busy. I used to spend summers on that beach when I was an infant, but as an adult I rarely went there.
@@ -109,4 +114,3 @@ Old town on the Gargano mountain. Nice to have a stroll through the old center. 
 ## San Giovanni Rotondo
 2 **
 Here's the old Church of Padre Pio, and the new church built by Renzo Piano, one of the largest in the world. Could be ok to stop if anyone in the group is a follower of Padre Pio. Otherwise not much to see.
-
