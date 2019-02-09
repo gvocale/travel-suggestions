@@ -1,18 +1,18 @@
-#LIST TO DO – MEXICO
+# TO DO – MEXICO
 
 Welcome to Mexico, it’s not as dangerous as they say, but it’s not as safe as you’d like.
 So, just try to stay in the “cool” areas, and when you are in other neighborhoods, try to walk the streets where you see more people.
 
-Y#OU CAN UBER VERY EASILY WITH YOUR SAME ACCOUNT AND IT’S SAFE!
+**YOU CAN UBER VERY EASILY WITH YOUR SAME ACCOUNT AND IT’S SAFE!**
 
 The safest neighborhoods are:
-1. Roma (it’s the chic neighborhood now, lots of little restaurants, cafes, a bit expensive)
-2. Condesa (It’s the Roma from a few years ago, it’s also really nice and feels safer)
-3. Polanco (poshy area, usually very busy, lots of traffic)
-4. Nápoles (not too much to see, there’s the Poliforum-Siqueiros, but you can skip that one)
-5. Santa María la Ribera (it’s getting there, not super safe but it’s pintoresque)
-6. Coyoacán (far south of the city, but if you go to the South, you can take advantage and visit some places, it’s a nice area)
-7. Historic center (I explain below, it’s not the safest place, but it’s okay, it’s usually very crowded but there are beautiful buildings, go in the daytime. It’s a must!)
+1. **Roma** (it’s the chic neighborhood now, lots of little restaurants, cafes, a bit expensive)
+2. **Condesa** (It’s the Roma from a few years ago, it’s also really nice and feels safer)
+3. **Polanco** (poshy area, usually very busy, lots of traffic)
+4. **Nápoles** (not too much to see, there’s the Poliforum-Siqueiros, but you can skip that one)
+5. **Santa María la Ribera** (it’s getting there, not super safe but it’s pintoresque)
+6. **Coyoacán** (far south of the city, but if you go to the South, you can take advantage and visit some places, it’s a nice area)
+7. **Historic center** (I explain below, it’s not the safest place, but it’s okay, it’s usually very crowded but there are beautiful buildings, go in the daytime. It’s a must!)
 
 ## Some places to go
 
@@ -29,10 +29,10 @@ https://www.tripadvisor.com/Attraction_Review-g150800-d153711-Reviews-National_M
 ### Historic Center (Centro Histórico)
 It’s a must. You have to go to have breakfast to a place called “El Cardenal” http://www.tripadvisor.com/Restaurant_Review-g150800-d814867-Reviews-Restaurante_El_Cardenal-Mexico_City_Central_Mexico_and_Gulf_Coast.html) They have amazing Mexican food and fresh bread in the mornings with hot chocolate!
 Then you have to walk around the area, the main pedestrian street is called Francisco I. Madero, you can walk there and it brings you to:
-- Zócalo, which is a really big plaza where people gather to celebrate big dates.
-- Mexican Cathedral, beautiful, take a look. It’s accross the street of Zocalo.
-- Templo Mayor, two blocks from there, it’s a museum with some ruins. In the plaza you will see a lor pre-Hispanic Aztec dancing.
-- Bellas Artes, it’s a MUST! go inside and see the murals (marble is so heavy that it keeps sinking every year). The murals here are unbelievable, there are not many but you can watch them for a long time. You will also see here the controversial mural that Diego Rivera did in NY in the Rockefeller Center, which was forbidden because he was getting too many communist things there. It’s very interesting. There a screen that explains the murals in one of the walls, I do prefer to google while I sit in front of them. You first have to make a line to buy the tickets and then a line to get in, but it moves pretty fast.
+- **Zócalo**, which is a really big plaza where people gather to celebrate big dates.
+- **Mexican Cathedral**, beautiful, take a look. It’s accross the street of Zocalo.
+- **Templo Mayor**, two blocks from there, it’s a museum with some ruins. In the plaza you will see a lor pre-Hispanic Aztec dancing.
+- **Bellas Artes**, it’s a MUST! go inside and see the murals (marble is so heavy that it keeps sinking every year). The murals here are unbelievable, there are not many but you can watch them for a long time. You will also see here the controversial mural that Diego Rivera did in NY in the Rockefeller Center, which was forbidden because he was getting too many communist things there. It’s very interesting. There a screen that explains the murals in one of the walls, I do prefer to google while I sit in front of them. You first have to make a line to buy the tickets and then a line to get in, but it moves pretty fast.
 https://www.tripadvisor.com/Attraction_Review-g150800-d153969-Reviews-Palacio_de_Bellas_Artes-Mexico_City_Central_Mexico_and_Gulf_Coast.html
 
 ### Secretaría de Educación Pública (Secretary of Public Education)
@@ -105,11 +105,11 @@ https://www.tripadvisor.com/Restaurant_Review-g150800-d1166277-Reviews-Maque-Mex
 
 This is how Mexican sweet bread looks like:
 
-### Eno
+#### Eno
 
-### Broka
+#### Broka
 
-### Parnita
+#### Parnita
 
 #### Pujol
 Michelin star rated restaurant. Have mole that is 2~ years old. Probably 100~200$ tasting menu.
