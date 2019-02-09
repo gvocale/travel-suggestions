@@ -61,6 +61,9 @@ http://www.tripadvisor.com/Attraction_Review-g150800-d152795-Reviews-Coyoacan-Me
 In Coyoacán, it’s a beautiful house, Frida and Diego used to live here. You MUST reserve to go here and secure tickets. It’s highly recommended, especially with all the Frida Kahlo international love. Walk around the neighborhood, it’s a beautiful part of the city, safe and walkable.
 Buy tickets here, no need for a tour guide, just buy the audio guide, it’s good. https://www.museofridakahlo.org.mx/en/the-blue-house/your-visit/
 
+### Garibaldi
+Plaza with lots of mariachis that can be rented for a seranade. Can spend some time at Tenampa, a bar in the plaza, which has mariachis inside. They usually cost 100 pesos per song.
+
 
 
 Restaurants or places to eat:
@@ -101,6 +104,23 @@ The sweet bread of Mexico is amazing. “Conchas” are the most traditional and
 https://www.tripadvisor.com/Restaurant_Review-g150800-d1166277-Reviews-Maque-Mexico_City_Central_Mexico_and_Gulf_Coast.html
 
 This is how Mexican sweet bread looks like:
+
+### Eno
+
+### Broka
+
+### Parnita
+
+#### Pujol
+Michelin star rated restaurant. Have mole that is 2~ years old. Probably 100~200$ tasting menu.
+
+
+#### Quintonil
+In Polanco, people say it's even better the Pujol
+
+
+#### El Molino
+From the owner of Pujol, little shop specialized in corn.
 
 
 There are other local “panaderías” (bakeries) if you guys walk by and want to try something there:
