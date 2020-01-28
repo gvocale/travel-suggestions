@@ -19,12 +19,15 @@ The safest neighborhoods are:
 ### Teotihuacán
 Pyramid ruins, very nice place, very touristic but it’s worth it. It’s far from the city so you need to take a special bus or have a driver. I really like this place, bring sunscreen and a hat because you won’t find any shade in the whole place and sun in Mexico can get intense. Bring comfortable shoes and try to climb the 2 big pyramids, really fun.
 
-### Chapultepec
+### Chapultepec Area
 It’s kind of our version of Central Park. It has a lake and a zoo, and a beautiful castle “Castillo de Chapultepec” (try to go to the castle, it has a beautiful view of the city and it’s beautiful). Chapultepec gets REALLY busy during the weekends, and it can be overwhelming, try to go during the weekdays. They DON’T open on Mondays. The Museo de Antropología is across the street so you can walk around.
+- **Chapultepec zoo**: visit Toto, the urangutan. A bit shy, but if you can catch his attention he's a pretty majestic beast.
+- **Castillo de Chapultepec**: a castle on a hill in the center of Chapultepec park. There is a great view of the city from the top.
+- **National Museum of Anthropology** Great architecture and pre-hispanic populations exhibits. https://www.tripadvisor.com/Attraction_Review-g150800-d153711-Reviews-National_Museum_of_Anthropology-Mexico_City_Central_Mexico_and_Gulf_Coast.html
 
-### National Museum of Anthropolgy
-A must! It’s very close to Polanco.
-https://www.tripadvisor.com/Attraction_Review-g150800-d153711-Reviews-National_Museum_of_Anthropology-Mexico_City_Central_Mexico_and_Gulf_Coast.html
+### Polanco
+- **Soumaya Museum**: beautiful architecture, free. There's a great collection of Rodin bronzes on the top floor. Start from the top and then spiral down.
+
 
 ### Historic Center (Centro Histórico)
 It’s a must. You have to go to have breakfast to a place called “El Cardenal” http://www.tripadvisor.com/Restaurant_Review-g150800-d814867-Reviews-Restaurante_El_Cardenal-Mexico_City_Central_Mexico_and_Gulf_Coast.html) They have amazing Mexican food and fresh bread in the mornings with hot chocolate!
@@ -154,3 +157,5 @@ http://www.yelp.com/biz/pulquer%C3%ADa-los-insurgentes-méxico-2
 http://www.yelp.com/biz/el-parnita-cuauhtémoc?osq=mezcal
 
 
+## What to bring
+[] **Probiotics**: I usually buy (hyperbiotics PRO-15)[https://www.amazon.com/PRO-15-Advanced-Strength-Probiotics-Survivability/dp/B00NNTBF22]. I take one a day when travelling as proactive support, or I just take one when I ate too much or feel my stomach funny.
