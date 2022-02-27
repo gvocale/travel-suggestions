@@ -78,12 +78,18 @@ Bar Sabina Sabe (all types of mezcal, very good) https://www.tripadvisor.com/Res
 
 Bar La Popular (mezcal) https://www.tripadvisor.com/Restaurant_Review-g150801-d1647908-Reviews-Zandunga-Oaxaca_Southern_Mexico.html
 
-To do in Oaxaca by conejo_mezcofago
+# To do in Oaxaca by https://www.instagram.com/conejo_mezcofago/
 
-•Cooking classes: casa de las bugambilias ; chef Pilar Cabrera
-•graphics workshop taller máscara negra
+## Cooking classes
 
-Mezcalerias :
+casa de las bugambilias, chef Pilar Cabrera
+
+## Graphics workshop
+
+taller máscara negra
+
+## Mezcalerias
+
 •In situ ( small mezcalería ; full of delicius mezcal , they close 10 pm )  
 •Cuish mezcaleria
 •puro burro ( mezcal and cocktails ) they have a private tasting room / ask for it ;)
@@ -92,7 +98,7 @@ They close 2 am ;) ;)
 •RECIA ( private tasting room)
 •la casa grande ( owned by the real minero family )
 
-Rest & Bar:
+## Rest & Bar
 
 •Mezcalerita ( mezcal ,big list of Mexican craft beer ) ask for the tlayuda & garnachas 👌🏻 drink aguamiel & pulque !  
 •El destilado courses dinner ( they have tacos at the terrace )
@@ -106,11 +112,12 @@ Rest & Bar:
 •la quebrada : great seafood for cure the hangover ( they close 7 pm )
 •La gran torta : pozoles ! Y tortas .
 
-Vegan :
+## Vegan
+
 Hierba Dulce
 La jicara
 
-Coffe & breakfast
+## Coffe & breakfast
 
 •Boulenc pan ( non Oaxacan ,very good )
 •Onno ( coffee place with amazing sandwiches and pastries perfect for breakfast)
@@ -120,26 +127,26 @@ Coffe & breakfast
 •chepiche
 Tacos Cristy ( very local ) great for breakfast
 
-Especialty coffee places
+## Especialty coffee places
 
 •Caracol Purpura
 •Cafebre
 •Cafeto y baristas
 •Silva dorado ( outside downtown)
 
-Tacos
+## Tacos
 
 •"El lechoncito de oro" ( a must )
 •el tendajon agaveria
 •Roy , tacos y pozoles
 •Alvaro , tacos y pozoles
 
-Tlayudas
+## Tlayudas
 
 •"la chinita" ( about 8 pm to 11 pm ) my fav tlayudas !!!! And recently they appeared on Netflix street food Latin America )
 •México 68 ( colonia reforma ) north of downtown
 
-Mexican spirits and stores about
+## Mexican spirits and stores about
 
 •mis mezcales ( oaxaca City & cdmx ) also they have the good tequilas
 •“Ezcarabajo” store : hats / shirts/ mezcal printed art and more .
@@ -147,6 +154,7 @@ Mexican spirits and stores about
 •la casa grande
 •bodega in Situ
 
-Chocolate stores :
+## Chocolate stores:
+
 Rito chocolatería
 La rifa
