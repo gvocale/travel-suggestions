@@ -77,3 +77,76 @@ https://www.tripadvisor.com/Attraction_Review-g150801-d7154864-Reviews-Mezcalote
 Bar Sabina Sabe (all types of mezcal, very good) https://www.tripadvisor.com/Restaurant_Review-g150801-d10378754-Reviews-Sabina_Sabe-Oaxaca_Southern_Mexico.html
 
 Bar La Popular (mezcal) https://www.tripadvisor.com/Restaurant_Review-g150801-d1647908-Reviews-Zandunga-Oaxaca_Southern_Mexico.html
+
+To do in Oaxaca by conejo_mezcofago
+
+•Cooking classes: casa de las bugambilias ; chef Pilar Cabrera
+•graphics workshop taller máscara negra
+
+Mezcalerias :
+•In situ ( small mezcalería ; full of delicius mezcal , they close 10 pm )  
+•Cuish mezcaleria
+•puro burro ( mezcal and cocktails ) they have a private tasting room / ask for it ;)
+•los nahuales ( tell them “Dary” recommend you , they will gift you a house cocktail;)  
+They close 2 am ;) ;)
+•RECIA ( private tasting room)
+•la casa grande ( owned by the real minero family )
+
+Rest & Bar:
+
+•Mezcalerita ( mezcal ,big list of Mexican craft beer ) ask for the tlayuda & garnachas 👌🏻 drink aguamiel & pulque !  
+•El destilado courses dinner ( they have tacos at the terrace )
+•La popular ( relaxed rest bar , rollitos de quesillo , torta de cecina my fav )
+•Zandunga ( don’t miss the garnachas ) ( food from the Oaxacan isthmus region )
+•El tendajón ( octopus tacos , tripe tacos , ask for “esferas de queso” ) if you like michelada or Clamato , they have a great one .
+•Maguey y maíz , modern fusion with local ingredients.
+•Origen ( quite fancy , delicious desserts )
+•RAMEN YA , yes a very good one !  
+•Levadura de olla ( check out the reviews )
+•la quebrada : great seafood for cure the hangover ( they close 7 pm )
+•La gran torta : pozoles ! Y tortas .
+
+Vegan :
+Hierba Dulce
+La jicara
+
+Coffe & breakfast
+
+•Boulenc pan ( non Oaxacan ,very good )
+•Onno ( coffee place with amazing sandwiches and pastries perfect for breakfast)
+•"Itanoni"
+(many dishes made of corn and cooked on comal ) this place is outside of the downtown area ( 20 minutes walking from the zocalo )
+•breakfast at any market on the area : Benito Juárez , la merced , Sanchez pascuas : I recommend you enfrijoladas , salsa de queso , entomatadas , enmoladas , chile relleno ,( all is good !!! )
+•chepiche
+Tacos Cristy ( very local ) great for breakfast
+
+Especialty coffee places
+
+•Caracol Purpura
+•Cafebre
+•Cafeto y baristas
+•Silva dorado ( outside downtown)
+
+Tacos
+
+•"El lechoncito de oro" ( a must )
+•el tendajon agaveria
+•Roy , tacos y pozoles
+•Alvaro , tacos y pozoles
+
+Tlayudas
+
+•"la chinita" ( about 8 pm to 11 pm ) my fav tlayudas !!!! And recently they appeared on Netflix street food Latin America )
+•México 68 ( colonia reforma ) north of downtown
+
+Mexican spirits and stores about
+
+•mis mezcales ( oaxaca City & cdmx ) also they have the good tequilas
+•“Ezcarabajo” store : hats / shirts/ mezcal printed art and more .
+•espíritus mágicos ( ask for “el altar” secret tasting room )  
+•la casa grande
+•bodega in Situ
+
+Chocolate stores :
+Rito chocolatería
+La rifa
