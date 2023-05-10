@@ -33,7 +33,8 @@ Electronic shops and otaku (japanese dolls) shops
 http://nippombashi.toraru.com/display/index
 
 ### Kitashinchi
-Authentic and lively atmosphere, restaurant, bars, shops
+Authentic and lively atmosphere, restaurant, bars, shops.
+Lots of nightclubs for office workers, where they bring their mistresses.
 
 ### Namba / Dotombori / Shinsaibashi
 - [ ] Walk in Orange Street (cafe and shops)
@@ -44,8 +45,11 @@ Authentic and lively atmosphere, restaurant, bars, shops
 
 
 ### Tennoji
+- [ ] Osaka tower
+- [ ] more shops
 
 ### Kitahama/Temmabashi
+- [ ] River with offices
 
 ----
 
@@ -89,6 +93,7 @@ Hipster neighbourhood with nice shops.
 ### Shinjuku
 - [ ] Walk in Golden Gai, street full of little 5~10 seats intimate bars
 - [ ] Go into one of the little bars in Golden Gai and try to conversate with bartender
+- [ ] Tokyo Park Hyatt Hotel. Is the one of Lost in Translation. Go to have a drink and listen to Jazz with a view over the city.
 
 ### Omotesando
 Designer hood http://www.onthegrid.city/tokyo/omotesando/
@@ -135,7 +140,7 @@ Lots to see, spend 2-3 days
 - [ ] Old city, nakasujicho
 - [ ] ARASHIYAMA (bamboo trees)
 - [ ] KIYOTAKI (near arashiyama)
-- [ ] Kyomizudera (temple) Higashiyama (district near Kyomizudera)
+- [ ] Kyomizudera (temple)Higashiyama (district near Kyomizudera)
 - [ ] Kodaiji (temple)
 - [ ] Kenninji (in H
 - [ ] Gion (geisha district)
@@ -162,3 +167,6 @@ Its about 45 min. train ride from Kyoto!
 ## Flea markets
 http://japan-magazine.jnto.go.jp/en/1401_fleamarket.html
 https://www.tripadvisor.com/ShowUserReviews-g298564-d591799-r50317400-Kitano_Tenman_gu_Shrine-Kyoto_Kyoto_Prefecture_Kinki.html
+
+## Audiophile bars
+- [ ] Check list on [Resident Advisor](https://www.residentadvisor.net/features/2724)
